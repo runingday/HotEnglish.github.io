@@ -31,6 +31,17 @@ Then, say your name and surname: "I'm Brian Conrad." If the other person tells y
 - **Don't...**
 + ... move forward too much, invading the other person's personal space!
 + ... do more than three shakes! 
++ ... hold onto the other person's hand and **refuse** to **let go**!
++ ... offer your **fingertips**!
++ ... **grasp** the other person's arm!
++ ... put your other hand on top of theirs for a double handshake!
++ ... hold onto the other person's **elbow** or **shoulder**!
++ ... **squeeze** too hard - you don't want to hurt them!
++ ... pull the other person towards you aggressively!
++ ... offer the other person a wet or **sweaty** hand - dry it first!
++ ... **twist** your hand so that your hand is covering theirs **in a bid to** dominate them!
++ ... pull your hand away too quickly!
++ ... **wipe** your hand on your clothes after shaking the other person's hand!
 #### GLOSSARY (术语、词汇表）
 
 - **limp** adj. 
