@@ -10,7 +10,7 @@ Then, say your name and surname: "I'm Brian Conrad." If the other person tells y
 + A: How do you do? I'm Brian Conrad.
 + B: How do you do? Alexandra Scott.
 + A: Pleased to meet you, Alexandra.
-5. Shake the other person's hand, moving it up and down once or twice. Use a good, solid firm, handshake(not too hard and definitely not limp).
+5. Shake the other person's hand, moving it up and down once or twice. Use a good, solid firm, handshake(not too hard and definitely not **limp**).
 6. Finally, take your hand back, and step back.
 
 #### 2. Phrases to say when you meet someone
