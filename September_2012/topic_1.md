@@ -30,26 +30,26 @@ Then, say your name and surname: "I'm Brian Conrad." If the other person tells y
 #### GLOSSARY (术语、词汇表）
 
 - **limp** adj. 
-if you describe something as "limp", you're saying that it's soft or weak when it should be firm or strong.
+>if you describe something as "limp", you're saying that it's soft or weak when it should be firm or strong.
 - **to refuse** vb 
-if you "refuse" to do something, you say that you won't do that thing
+>if you "refuse" to do something, you say that you won't do that thing
 - **to let go** exp
-when you "let go" of someone's hand, you stop holding onto it and release it
+>when you "let go" of someone's hand, you stop holding onto it and release it
 - **a fingertip** n
-the end of your finger
+>the end of your finger
 - **to grasp** vb
-if you "grasp" something, you take it in your hand and hold it very firmly
+>if you "grasp" something, you take it in your hand and hold it very firmly
 - **an elbow** n
-the joint in the middle of your arm
+>the joint in the middle of your arm
 - **a shoulder** n
-the joint at the top of your arm between your arm and body
+>the joint at the top of your arm between your arm and body
 - **to squeeze** vb
-if you "squeeze" something, you press it firmly(often with your hands)
+>if you "squeeze" something, you press it firmly(often with your hands)
 - **sweaty** adj
-if a part of someone's body is "sweaty", it is covered in sweat(liquid from your body)
+>if a part of someone's body is "sweaty", it is covered in sweat(liquid from your body)
 - **to twist** vb
-to turn
+>to turn
 - **in a bid** exp
-in an attempt to
+>in an attempt to
 - **to wipe** vb
-to clean
+>to clean
