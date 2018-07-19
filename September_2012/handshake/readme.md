@@ -1,6 +1,8 @@
 ## Handshake changes 
 ### Changes in the way people greet in the UK
 
+!audio[ Handshake chages ]( ../handshake.m4a ){ size=10 duration=10 cycle=forever }
+
 **H**ow  do you greet people in your country? In the UK, a handshake has been the traditional way to say hello. But this seems to be changing.
 
 A new **survey** shows that the handshake is now less popular. According to results from the **poll**, many Britons now consider handshakeing "formal, **outdated**" or "**unhygienic**". In the past, the British **looked down on** hugging or kissing as a form of greeting, but not any longer. In fact, almost 50 percent are using alternative ways to greet, with 16 percent preferring a continental-style **peck on the cheek**, and nearly a third choosing a hug.
