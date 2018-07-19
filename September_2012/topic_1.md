@@ -35,4 +35,21 @@ if you describe something as "limp", you're saying that it's soft or weak when i
 if you "refuse" to do something, you say that you won't do that thing
 - **to let go** exp
 when you "let go" of someone's hand, you stop holding onto it and release it
-
+- **a fingertip** n
+the end of your finger
+- **to grasp** vb
+if you "grasp" something, you take it in your hand and hold it very firmly
+- **an elbow** n
+the joint in the middle of your arm
+- **a shoulder** n
+the joint at the top of your arm between your arm and body
+- **to squeeze** vb
+if you "squeeze" something, you press it firmly(often with your hands)
+- **sweaty** adj
+if a part of someone's body is "sweaty", it is covered in sweat(liquid from your body)
+- **to twist** vb
+to turn
+- **in a bid** exp
+in an attempt to
+- **to wipe** vb
+to clean
