@@ -27,6 +27,10 @@ Then, say your name and surname: "I'm Brian Conrad." If the other person tells y
 + Thank you so much for meeting with me.
 + It was nice to meet you.
 
+#### 4. Things to avoid
+- **Don't...**
+++ ... move forward too much, invading the other person's personal space!
+++ ... do more than three shakes! 
 #### GLOSSARY (术语、词汇表）
 
 - **limp** adj. 
