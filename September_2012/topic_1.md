@@ -28,7 +28,7 @@ Then, say your name and surname: "I'm Brian Conrad." If the other person tells y
 + It was nice to meet you.
 
 #### GLOSSARY (术语、词汇表）
-<pre>
+
 **limp** adj. 
 if you describe something as "limp", you're saying that it's soft or weak when it should be firm or strong.
 **to refuse** vb 
@@ -36,5 +36,3 @@ if you "refuse" to do something, you say that you won't do that thing
 **to let go** exp
 when you "let go" of someone's hand, you stop holding onto it and release it
 
-
-</pre>
