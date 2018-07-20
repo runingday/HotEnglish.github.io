@@ -30,25 +30,25 @@ during the late 16th century.
 ### GLOSSARY
 
 + **a survey** n
--if you carry out a "survey", you try to get information about things, usually by asking people a series of questions.
+- if you carry out a "survey", you try to get information about things, usually by asking people a series of questions.
 
 + **a pool** n
--a "pool" is a survey in which people are asked their opinions about something, usually in order bo find out how popular something is 
+- a "pool" is a survey in which people are asked their opinions about something, usually in order bo find out how popular something is 
 
 + **outdated** adj
--old-fashioned; no longer useful modern life. 
+- old-fashioned; no longer useful modern life. 
 
 + **unhygienic** adj
--not clean
+- not clean
 + **to look down on** phr vb
--if you "look down on" something, you consider it inferior or not good
+- if you "look down on" something, you consider it inferior or not good
 
 + **a peck on the check** exp
--a little kiss on the check (the side of the face)
+- a little kiss on the check (the side of the face)
 
 + **to commission** vb
--if you "commission" work, you pay someone to do that work
+- if you "commission" work, you pay someone to do that work
 
 + **to pass on** phr vb
--if someone is "reserved", they hide their feelings or emotions.
+- if someone is "reserved", they hide their feelings or emotions.
 
