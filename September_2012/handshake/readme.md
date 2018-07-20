@@ -12,3 +12,43 @@ The study of 1,003 participants, **commissioned** by soap firm Radox, also found
 Psychologist Dr Jane McCartney said, " I think the handshake is dependent on age. The older you are the more likely you are to prefer the handshake. It's quite a formal introduction. So, it's quite nice that today's generation feel far less **reserved.**"
 
 So, what's your favourite form of greeting?
+
+## Handshaking trivia
+
+Psychologists say that the handshake can help us form an opinion of the other person. And in numerous tests in the UK and US,
+
+those who have a firm handshake are judged more positively. But other things are important too, such as eye-contact and 
+
+positive body language such as smile and a tilt of the head to show openness.
+
+It is estimated that Queen Elizabeth II has shaken more than half a million hands. This is compared with 670 for an average
+
+man over his lifetime and 304 for women. The handshake is thought to have been introduced by Sir Walter Raleigh in Britain 
+
+during the late 16th century.
+
+### GLOSSARY
+
++ **a survey** n
+if you carry out a "survey", you try to get information about things, usually by asking people a series of questions.
+
++ **a pool** n
+a "pool" is a survey in which people are asked their opinions about something, usually in order bo find out how popular something is 
+
++ **outdated** adj
+old-fashioned; no longer useful modern life. 
+
++ **unhygienic** adj
+not clean
++ **to look down on** phr vb
+if you "look down on" something, you consider it inferior or not good
+
++ **a peck on the check** exp
+a little kiss on the check (the side of the face)
+
++ **to commission** vb
+if you "commission" work, you pay someone to do that work
+
++ **to pass on** phr vb
+if someone is "reserved", they hide their feelings or emotions.
+
